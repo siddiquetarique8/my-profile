@@ -1,1 +1,1 @@
-work in progress (prototype) # myself
+work in progress (prototype) # my profile
